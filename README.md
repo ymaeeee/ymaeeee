@@ -13,4 +13,4 @@
       - **I love cats and dogs! I have my own pets, a female Siamese-Persian named Taylor and 2 Shih Tzu male dogs named Mocha and Choi!**<br>
       - **We also have a puspin(a term for Filipino stray cats) named PG, in short for Patay Gutom, because he's a greedy eater. Haha! :)**<br>
       - **I love listening to old songs most of the time, especially to The Carpenters and Air Supply :P**<br>
-      - **I am BLOOM! 🤩🌸 I stan a PPOP Group named BINI\, a group of young & talented Filipina singers, and their fans are called BLOOMS\! Check them out! 😃**</p>
+      - **I am a BLOOM! 🤩🌸 I stan a PPOP Group named BINI\, a group of young & talented Filipina singers, and their fans are called BLOOMS\! Check them out! 😃**</p>
